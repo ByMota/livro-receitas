@@ -1,3 +1,2 @@
 # Strognoff de Frango 🐓
-### Ingredientes
-	- 1
+### É o melhor que tem 
